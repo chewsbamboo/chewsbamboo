@@ -1,6 +1,6 @@
 <div align="center">
  
-[ATA](https://expshampo.atabook.org)⠀⠀⠀.⠀⠀⠀STRAW 
+[ATA](https://expshampo.atabook.org)⠀⠀⠀.⠀⠀[STRAW](https://expshampoo.straw.page)
  </p>
  
 <p align="center">
