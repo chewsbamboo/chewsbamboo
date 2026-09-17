@@ -11,7 +11,7 @@ $${\color{#8F95A5}c+h}$$ $${\color{#8F95A5}enc}$$ $${\color{#BABBB5}anytime}$$ <
   <img src="https://i.ibb.co/gJWYSMW/IMG-6448.gif"/>
   </br>
    </br>
-  $${\color{#8F95A5}-16⠀dni}$$ $${\color{#8F95A5}★}$$ $${\color{#BABBB5}basic\ dni\ cri,}$$ $${\color{#D0C7A8}just\ dont\ be\ a\ weirdo}$$
+  $${\color{#8F95A5}-16⠀dni}$$ $${\color{#8F95A5}★}$$ $${\color{#BABBB5}basic\ dni\ cri,}$$ $${\color{#D0C7A8}just\ dont\ be}$$ $${\color{#FECE92} a\ weirdo}$$
   </br>
   $${\color{#8F95A5}Im\ ⠀really}$$ $${\color{#BABBB5} awkward}$$ $${\color{#BABBB5}so ⠀dont ⠀expect}$$ $${\color{#D0C7A8}me ⠀to }$$ $${\color{#FECE92}yap ⠀ty!}$$
   ‎</details>
