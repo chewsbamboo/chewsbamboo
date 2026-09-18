@@ -8,7 +8,7 @@ $${\color{#8F95A5}c+h}$$ $${\color{#8F95A5}enc}$$ $${\color{#BABBB5}anytime}$$ <
  $${\color{#8F95A5}always}$$ $${\color{#8F95A5}offtab}$$ $${\color{#BABBB5}𓏵}$$ $${\color{#BABBB5}slow reply}$$ $${\color{#D0C7A8}𓏵}$$ $${\color{#FECE92}semi-mute}$$ ㅤ
 </br>
   </br>
-  <img src="https://i.ibb.co/gJWYSMW/IMG-6448.gif"/>
+  <img src="https://64.media.tumblr.com/079608ac21dfe2cbc9b1758fc1e3755b/cfb752421e30be5b-f0/s100x200/07b23e507f6dc9c7835f4aff0211a0b3a380cc32.pnj"/>
   </br>
    </br>
   $${\color{#8F95A5}-16⠀dni}$$ $${\color{#8F95A5}★}$$ $${\color{#BABBB5}basic\ dni\ cri,}$$ $${\color{#D0C7A8}just\ dont\ be}$$ $${\color{#FECE92} a\ weirdo}$$
