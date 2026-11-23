@@ -32,6 +32,6 @@ hi I'm ѕai / ѕhampo <img src="https://64.media.tumblr.com/bc2863f06a9fa120560a
 </div>
    
 <td valign="top">
-<img src="https://github.com/user-attachments/assets/045299f0-da29-4039-9617-c20e635bd013" width="150" height="150">
+<img src="https://github.com/user-attachments/assets/f748d62f-537c-40e4-8172-390241e92702" width="150" height="150">
 </td>
 </table>
