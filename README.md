@@ -2,7 +2,7 @@
 <div align="center">
 <table>
   <tr>
-    <td align="center"><img width="390" height="140" alt="1666445273" src="https://github.com/user-attachments/assets/27189b1a-021b-4d6d-ad3f-f2f47de56ace" /></td>
+    <td align="center"><img width="390" height="140" alt="1666445273" src="https://github.com/user-attachments/assets/c21567f9-6658-453c-8b8b-628f855d3ad9" /></td>
   </tr>
 </table>
  </div>   
